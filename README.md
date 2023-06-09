@@ -1,1 +1,1 @@
-# [https://github-profile-trophy.vercel.app/?username=SIDHARTH-7]
+https://github-profile-trophy.vercel.app/?username=SIDHARTH-7
